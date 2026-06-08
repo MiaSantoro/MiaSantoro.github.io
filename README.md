@@ -14,7 +14,7 @@
 
 `Contact & Updates`
 
-For more info (https://www.instagram.com/miajsantoro/)
+[For more info](https://www.instagram.com/miajsantoro/)
 
 Email: martinasantorojob@gmail.com
 
