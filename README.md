@@ -8,7 +8,7 @@
 
 `CONTENT`
 
-[Chapter 0 - On starting from uncertainty](0_Onstartingfromuncertainty.md)
+[Chapter 0 - On starting from uncertainty](0_on-starting-from-uncertainty.md)
 
 ---
 
