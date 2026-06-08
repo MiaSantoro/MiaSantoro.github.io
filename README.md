@@ -1,4 +1,3 @@
-`MIA SANTORO`
 
 `Welcome to my blog/reasearch space`
 
