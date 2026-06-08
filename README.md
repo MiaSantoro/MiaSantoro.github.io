@@ -1,4 +1,3 @@
-
 `Welcome to my blog/reasearch space`
 
 `Below you will find the ongoing chapters of this project`
