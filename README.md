@@ -8,13 +8,13 @@
 
 `CONTENT`
 
-`Chapter 0 > (0_On starting from uncertainty.md)  `
+[Chapter 0 - On starting from uncertainty](0_Onstartingfromuncertainty.md)
 
 ---
 
 `Contact & Updates`
 
-`Follow the project on [Instagram](https://www.instagram.com/miajsantoro/)`
+For more info (https://www.instagram.com/miajsantoro/)
 
-`Email: martinasantorojob@gmail.com`
+Email: martinasantorojob@gmail.com
 
