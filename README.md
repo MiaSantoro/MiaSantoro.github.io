@@ -1,6 +1,6 @@
-`Welcome to my blog/reasearch space`
+`Welcome to my diary/research corner - a place for essays,unfinished thoughts,questions,experiments,works in progress and the occasional attempt to make sense of things.`
 
-`Below you will find the ongoing chapters of this project`
+`Below you will find the ongoing chapters`
 
 ---
 
@@ -12,7 +12,7 @@
 
 `Contact & Updates`
 
-[For more info](https://www.instagram.com/miajsantoro/)
+[>To follow my current projects<](https://www.instagram.com/miajsantoro/)
 
 Email: martinasantorojob@gmail.com
 
