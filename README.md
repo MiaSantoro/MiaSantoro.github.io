@@ -16,5 +16,5 @@
 
 [>To follow my current projects<](https://www.instagram.com/miajsantoro/)
 
-Email: martinasantorojob@gmail.com
+`Email: martinasantorojob@gmail.com`
 
