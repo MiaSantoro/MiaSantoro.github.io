@@ -13,7 +13,7 @@ Trying to understand why.
 
 However I feel lighter writing down my rabbit hole of thoughts.I feel like every time I do so I am metaphorically taking away some clothes from you know,the well known *"chair-wardrobe"*.The one covered in clothes,so many that you cannot even see the chair underneath.While I'm writing these exact words the pile of random clothes on it gets smaller.And eventually I am gonna be able to see the structure,the skeleton,the chair.Or well I hope so.More likely as I take away one t-shirt,a dress is going to take its place.
 
-*I am aware that as the clothes are probably never gonna fully disappear from the chair-wardrobe neather my questions are never gonna fully have answers.* That's the beauty of it.
+I am aware that,just as the clothes will probably never fully disappear from the chair-wardrobe,my questions will probably never be fully answered.That's the beauty of it.
 
 Truth to be told these questions were originally conceived as the beginning of a possible thesis,but I am publishing it here because the questions it contains extend beyond that context.I feel they belong to a broader research process that continues to evolve through making,reading,collecting and observing.
 And the more I know the more I see the questions getting bigger and bigger.
