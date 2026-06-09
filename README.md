@@ -7,6 +7,7 @@
 `CONTENT`
 
 [Chapter 0 - On starting from uncertainty](0_on-starting-from-uncertainty.md)
+[Chapter 1 - I thought I was studying objects](1_i-thought-i-was-studying-objects.md)
 
 ---
 
