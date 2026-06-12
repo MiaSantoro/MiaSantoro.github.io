@@ -10,6 +10,8 @@
 
 [Chapter 1 - I thought I was studying objects](1_i-thought-i-was-studying-objects.md)
 
+[Chapter 2 - Why some things refuse to collapse](2_why-some-things-refuse-to-collapse.md)
+
 ---
 
 `Contact & Updates`
