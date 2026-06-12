@@ -12,6 +12,8 @@
 
 [Chapter 2 - Why some things refuse to collapse](2_why-some-things-refuse-to-collapse.md)
 
+[Chapter 3 - One?I'm not buying it.](3_one-im-not-buying-it.md)
+
 ---
 
 `Contact & Updates`
