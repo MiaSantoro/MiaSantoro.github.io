@@ -40,7 +40,7 @@ In that sense,**fragility may not be the opposite of duration.It may be one of i
 
 Sometimes I wonder whether persistence is simply collapse happening more slowly.
 
-This idea has changed the way I think about artistic practice.For centuries in the past,artworks were often associated with permanence,integrity and preservation.Think about the well known "The picture of Dor
+This idea has changed the way I think about artistic practice.For centuries in the past,artworks were often associated with permanence,integrity and preservation.
 
 ***When I'm no longer here,this will still be here.Despite everything.Despite time.***
 
