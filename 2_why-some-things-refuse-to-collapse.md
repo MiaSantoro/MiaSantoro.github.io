@@ -1,6 +1,6 @@
 # Why some things refuse to collapse
 
-If the previous chapter was about how systems emerge,this one is about something I find even more puzzling.
+Let's talk about something I find kinda puzzling.
 
 **Once something exists,how does it manage to keep going?**
 
