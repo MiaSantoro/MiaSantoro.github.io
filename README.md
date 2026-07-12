@@ -14,6 +14,8 @@
 
 [Chapter 3 - One?I'm not buying it.](3_one-im-not-buying-it.md)
 
+[Chapter 4 - Estimated Arrival : Unknown](4_estimated-arrival-unknown.md)
+
 ---
 
 `Contact & Updates`
