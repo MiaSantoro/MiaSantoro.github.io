@@ -1,4 +1,5 @@
 # On starting from uncertainty
+09/06/2026
 
 *I am not entirely sure where this research begins.*
 
