@@ -1,6 +1,6 @@
 # Version 4.3 of the Truth
 
-I have spent quite a lot of time writing about *uncertainty.*
+I did a lot of writing about *uncertainty.*
 
 This is convenient because **I genuinely have no idea what I am doing.** Unfortunately well,at some point,you still have to explain it.
 
