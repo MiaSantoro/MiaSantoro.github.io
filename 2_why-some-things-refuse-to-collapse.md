@@ -1,4 +1,5 @@
 # Why some things refuse to collapse
+12/06/2026
 
 Let's talk about something I find kinda puzzling.
 
