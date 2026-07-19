@@ -1,4 +1,5 @@
 # Version 4.3 of the Truth
+19/07/2026
 
 I did a lot of writing about *uncertainty.*
 
