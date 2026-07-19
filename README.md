@@ -16,6 +16,8 @@
 
 [Chapter 4 - Estimated Arrival : Unknown](4_estimated-arrival-unknown.md)
 
+[Chapter 5 - Version 4.3 of the Truth](5_version-43-of-the-truth.md)
+
 ---
 
 `Contact & Updates`
