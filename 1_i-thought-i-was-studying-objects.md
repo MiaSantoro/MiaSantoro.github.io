@@ -1,4 +1,6 @@
 # I thought I was studying objects
+10/06/2026
+
 Looking back,I'm not sure that was ever true.
 
 What kept drawing me in was something else:the relationships that allowed those things to hold together,persist,transform and well,sometimes fall apart.
