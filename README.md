@@ -18,6 +18,8 @@
 
 [Chapter 5 - Version 4.3 of the Truth](5_version-43-of-the-truth.md)
 
+[Chapter 6 - The Imagination Fallacy](6_the-imagination-fallacy.md)
+
 ---
 
 `Contact & Updates`
