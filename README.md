@@ -30,5 +30,5 @@
 
 ---
 
-`Mia Santoro is an Italian contemporary artist and independent researcher.Her practice investigates perception,imagination and predictive cognition through installation,writing and interdisciplinary research.Drawing on science and philosophyshe explores how reality is constructed - and how art can interrupt the predictions through which we make sense of the world.Rather than illustrating knowledge,her work uses artistic practice as a method of inquiry.`
+`Mia Santoro is an Italian contemporary artist and independent researcher.Her practice investigates perception,imagination and predictive cognition through installation,writing and interdisciplinary research.Drawing on science and philosophy she explores how reality is constructed - and how art can interrupt the predictions through which we make sense of the world.Rather than illustrating knowledge,her work uses artistic practice as a method of inquiry.`
 
