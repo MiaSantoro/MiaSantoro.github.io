@@ -20,6 +20,8 @@
 
 [Chapter 6 - The Imagination Fallacy](6_the-imagination-fallacy.md)
 
+[Chapter 7 - The Chair](7_the-chair.md)
+
 ---
 
 `Contact & Updates`
