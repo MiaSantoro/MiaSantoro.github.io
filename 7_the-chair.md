@@ -7,9 +7,10 @@ People usually come back talking about cultural differences,new routines,unexpec
 
 I've been in Groningen for a week.So far,I've mostly noticed **broken chairs.**
 
+You don't find lots of them in the Netherlands but,every now and then here they are.
 I thought I'd spend my first days learning how the city worked.And I really did,still I keep slowing down for objects everyone else walks past without a second thought.A suitcase missing its wheels.Half a bicycle.A shelf that has somehow become part of the pavement.Chairs left outside as if someone quietly decided they had reached the end of their career.
 
-At this point I'm beginning to suspect I have a condition.Other people discover cafés.I catalogue damaged furniture.
+At this point I'm beginning to suspect I have a condition.Other people discover cafés.I catalogue damaged furniture.Let's say I have a soft spot for damaged and broken things,I totally confirm this here.
 
 The strange thing isn't that these objects are broken.It's that nobody seems willing to stop calling them what they are.
 
@@ -25,17 +26,13 @@ Nobody has ever looked at a chair and wondered whether it was still one.Until...
 
 It turns out imagining new things is easier than **deciding when an old thing has become a new one.**
 
-I can't stop thinking about a chair.
-
-Not a particular chair.Just... the idea of one.Imagine finding an abandoned chair and replacing one part.Then another.Then another.A different leg.A different seat.A different backrest.Different screws.Different wood.Different everything.Eventually nothing of the original remains.
+I can't stop thinking about a chair.Not a particular chair.Just... the idea of one.Imagine finding an abandoned chair and replacing one part.Then another.Then another.A different leg.A different seat.A different backrest.Different screws.Different wood.Different everything.Eventually nothing of the original remains.
 
 **Would you still call it the same chair?**
 
 More interestingly,would you even hesitate before answering?
 
-I guess objects aren't defined by the materials they're made of.Perhaps they're defined by a much stranger agreement-one we all seem to participate in without ever discussing it.
-
-Replace one piece and nothing happens.Replace another and still nothing happens.Then,somewhere along the way,you realise you're no longer replacing parts.
+I guess objects aren't defined by the materials they're made of.Perhaps they're defined by a much stranger agreement-one we all seem to participate in without ever discussing it.Replace one piece and nothing happens.Replace another and still nothing happens.Then,somewhere along the way,you realise you're no longer replacing parts.
 
 **You're negotiating a definition.**
 
