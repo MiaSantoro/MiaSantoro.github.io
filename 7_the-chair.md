@@ -1,4 +1,4 @@
-# The chair
+# The Chair
 30/08/2026
 
 Moving to another country is supposed to change your perspective.
